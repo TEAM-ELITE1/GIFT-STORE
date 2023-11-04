@@ -1,7 +1,6 @@
 # HERON AFRIDI GIFT STORE 
 
-Follow GitHub and stay with
-       B0B-MARLEY🔶🔷
+Follow GitHub for more gifts🔶🔷
 
 
 
